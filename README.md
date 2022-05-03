@@ -1,4 +1,4 @@
-its the bellagio fountain but in west oakland, california... bellaweo
+imagine the bellagio fountain but in west oakland, california... bellaweo
 
 not much happens here on github
 
